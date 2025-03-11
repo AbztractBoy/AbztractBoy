@@ -23,7 +23,7 @@
 - **Client-Focused:** I prioritize understanding your needs and delivering tailored solutions that drive results.  
 
 ### **Let’s Connect**  
-🌍 **Portfolio:** [Link]  
+🌍 **Portfolio:** [Privacy settings]  
 📧 **Email:** [AbztractBoy@gmail.com]  
 💼 **LinkedIn:** [https://www.linkedin.com/in/jantxrl]  
 
